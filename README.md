@@ -11,3 +11,4 @@ La lalala lalala zolto niebiescy
 Klubem lodzi jest LKS
 STO MIL klask klask OLSZ TYN
 WIELKIE WIELKIE WIELKI ZAGLEBIE
+co to jest za dryzuna co superpuchar ma
