@@ -8,4 +8,4 @@ HEJ HEJ KOLEJORZ
 A MY SWOOOJE
 kazdy to powie cracovia rzadzi w krakowie 
 La lalala lalala zolto niebiescy
-Klubem lodzi jest RTS i LKS
+Klubem lodzi jest LKS
