@@ -12,3 +12,5 @@ Klubem lodzi jest LKS
 STO MIL klask klask OLSZ TYN
 WIELKIE WIELKIE WIELKI ZAGLEBIE
 Polonia bytom
+stare kurwy ladacznice katowice 
+
