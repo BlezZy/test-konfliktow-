@@ -7,3 +7,4 @@ my jestesmy chlopcy z zabrza
 HEJ HEJ KOLEJORZ
 A MY SWOOOJE
 
+kazdy to powie wiselka rzadzi w krakowie 
