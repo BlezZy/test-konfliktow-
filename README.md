@@ -6,4 +6,5 @@ taaaaanczyyymy LABADA LABADA
 my jestesmy chlopcy z zabrza
 HEJ HEJ KOLEJORZ
 A MY SWOOOJE
+kazdy to powie cracovia rzadzi w krakowie 
 La lalala lalala zolto niebiescy
