@@ -10,4 +10,5 @@ kazdy to powie cracovia rzadzi w krakowie
 La lalala lalala zolto niebiescy
 Klubem lodzi jest LKS
 STO MIL klask klask OLSZ TYN
+co to jest za dryzuna co sledziem je*ie tak?
 
